@@ -1,2 +1,2 @@
 # wallpapers
-Persona Collection of Wallpapers
+Personally Curated Collection of Wallpapers
